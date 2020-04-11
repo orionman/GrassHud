@@ -30,3 +30,4 @@ For Support DM Me on Steam or make a Discussion about it
 
 Feel free to use this on your servers!
 
+I respond quicker on Discord, join my server [here](https://discord.gg/HBVkdjT)
